@@ -1,1 +1,0 @@
-# WQ_coder
